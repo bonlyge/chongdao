@@ -1,2 +1,0 @@
-# chongdao
-宠物
